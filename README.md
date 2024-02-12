@@ -1,1 +1,0 @@
-# buatsheryl.github.io
